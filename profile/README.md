@@ -8,9 +8,9 @@ Les Jurassic World : Renaissance en 𝐬t𝐫e𝐚m𝐢n𝐠 vf 100% gratuit, vo
 
 Regardez – Les Jurassic World : Renaissance 𝐬t𝐫e𝐚m𝐢n𝐠 VF
 
-**CLIQUEZ ICI►: [Regardez! Les Jurassic World : Renaissance 𝐬t𝐫e𝐚m𝐢n𝐠 Vostfr]()**
+**CLIQUEZ ICI►: [Regardez! Les Jurassic World : Renaissance 𝐬t𝐫e𝐚m𝐢n𝐠 Vostfr](https://tinyurl.com/3dsw6hr6)**
 
-**CLIQUEZ ICI►: [The Les Jurassic World : Renaissance 𝐬t𝐫e𝐚m𝐢n𝐠 Film Complet]()**
+**CLIQUEZ ICI►: [The Les Jurassic World : Renaissance 𝐬t𝐫e𝐚m𝐢n𝐠 Film Complet](https://tinyurl.com/3dsw6hr6)**
 
 :-
 
